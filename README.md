@@ -3,6 +3,8 @@ department documents
 
 Lauren, I moved most, now ALL, of the files into 2015-16; since they are all relevant to the 2015-16 AY year only.
 
+And added our 'Generic' course schedule matrix.
+
 We will have a new folder for 2016-17.
 
 Also a few of these are also available to our students on the web at:
